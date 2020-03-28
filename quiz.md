@@ -1,0 +1,107 @@
+## Round 1, Disney+:
+
+Disney just launched their streaming service in the UK; each question is from a section on their homepage.
+
+1.
+1.
+1.
+1.
+1.
+
+## Round 2, Isolation:
+
+Things could be worse...
+
+6. What famous prison is on an island just off San Francisco?
+1. Tom Hanks was alone on a desert island for 4 years in Cast Away. What colour was the face of Wilson? For a bonus point, what was Wilson made from?
+1. Anne Frank and her family hid for 761 days during WW2. In which city?
+1. 
+1.
+
+## Round 3, Health and Fitness:
+
+It's important to take care of your health right now. These questions will check you know how.
+
+11. According to a study from the universities of Quebec and Montreal, how many calories on average does a woman burn during sex: 69, 101, or 180?
+1. Just Dance is a great way to get some exercise around the house, but which artist used the game in a music video? For a bonus point, name the song.
+1. What is the name of the exercise where you quickly go from standing, into a squat, into a plank, then repeat?
+1. Both of these foods are low-fat, but which has more protein: 100g of chicken breast or 100g of eggs (2 large eggs)?
+1.
+
+## Round 4, Crafts and Hobbies:
+
+Questions about things to do without going out.
+
+16. We all feel like we need a bit more space, but which of these space objects can be seen with the naked eye: Mars, Europa, or the Sombrero Galaxy?
+1. W L Judson invented which useful crafting item in 1891: Zip, pencil, or sewing machine?
+1.
+1.
+1.
+
+## Round 5, Entertainment:
+
+21.
+1.
+1.
+1.
+1.
+
+## Round 6, Dogs:
+
+26.
+1.
+1.
+1.
+1.
+
+
+Ideas
+
+Space
+Retail shop question
+Dinosaurs Jurrasic or Cretaceous
+Mythology
+Capital of which country
+Covid 19 animal
+Most consumed manufactured drink is tea
+Longest coastline is Canada
+Nerf Herder wrote the charmed theme
+
+Space A minor planet is asteroid
+
+WHO is based in which city London Geneva or Cologne? Geneva
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
