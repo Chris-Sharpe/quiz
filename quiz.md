@@ -71,6 +71,11 @@ Medically proven to be good for your mental health.
 * Covid 19 animal
 * Most consumed manufactured drink is tea
 * Longest coastline is Canada
-* Nerf Herder wrote the charmed theme
+* Nerf Herder wrote the Buffy theme
 * Space A minor planet is asteroid
 * WHO is based in which city London Geneva or Cologne? Geneva
+* snails can sleep for 3 years
+* cockroach has 12 heart chambers
+* bullfrogs never sleep
+* giraffes have highest blood pressure
+* sponges don't have hearts
