@@ -31,9 +31,9 @@
 24.
 25.
 
-26.
-27.
-28.
-29.
-30.
+26. Chow chow
+27. 42
+28. Beagle
+29. Great Dane
+30. Bull's Eye
 
