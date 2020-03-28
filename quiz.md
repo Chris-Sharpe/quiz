@@ -18,7 +18,7 @@ Things could be worse...
 1. Tom Hanks was alone on a desert island for 4 years in Cast Away. What colour was the face of Wilson? For a bonus point, what was Wilson made from?
 1. Anne Frank and her family hid for 761 days during WW2. In which city?
 1. How many years did South African politcal activist Nelson Mandela spend in prison?
-1.
+1. Matt Damon starred as Mark Watney, stranded on Mars in The Martian. What food did he grow in his own shit?
 
 ## Round 3, Health and Fitness:
 
