@@ -28,7 +28,7 @@ It's important to take care of your health right now. These questions will check
 1. Just Dance is a great way to get some exercise around the house, but which artist used the game in a music video? For a bonus point, name the song.
 1. What is the name of the exercise where you quickly go from standing, into a squat, into a plank, then repeat?
 1. Both of these foods are low-fat, but which has more protein: 100g of chicken breast or 100g of eggs (2 large eggs)?
-1.
+1. Which vegetable can be juiced to create a Vegan alternative to eggs for making meringue?
 
 ## Round 4, Crafts and Hobbies:
 
