@@ -1,6 +1,12 @@
 
 # Answers
 
+1.
+2.
+3.
+4.
+5.
+
 6. Alcatraz
 7. Red, volleyball (NOT football)
 8. Amsterdam
@@ -11,8 +17,23 @@
 12. Katy Perry, Last Friday Night
 13. Burpee
 14. Chicken 30g (egg 13g)
+15.
 
 16. Mars
 17. Zip
+18.
+19.
+20.
 
+21.
+22.
+23.
+24.
+25.
+
+26.
+27.
+28.
+29.
+30.
 
