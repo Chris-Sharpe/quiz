@@ -61,3 +61,4 @@
 1. Rubela
 Bonus. SARS
 
+5 bonus points available, for a total score out of 55.
