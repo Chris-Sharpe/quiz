@@ -44,11 +44,11 @@ Questions about things to do without going out.
 
 Don't get too bored.
 
-21.
-1.
-1.
-1.
-1.
+21. Which rapper *is* ready for this jelly?
+1. Which is the oldest Kardashian sister?
+1. Apart from the main six, which Friends character appeared in the most episodes?
+1. Nerf Herder wrote the theme song for which fantasy show; Charmed, Buffy the Vampire Slayer, or Xena: Warrior Princess?
+1. Taylor Swift's Look What You Made Me Do is based on which 90s hit? Bonus point for the original artist.
 
 ## Round 6, Dogs:
 
