@@ -64,11 +64,11 @@ Medically proven to be good for your mental health.
 
 Not dogs.
 
-31.
-1.
-1.
-1.
-1.
+31. Do sponges have hearts?
+1. Which animal has the highest blood pressure?
+1. How many bones are in an elephant's trunk?
+1. The dinosaurs mainly lived across three time periods. Which is the oldest; triassic, jurassic, or cretaceous?
+1. What's faster, Ussain Bolt or a tuna fish?
 
 ## Round 8, Geography:
 
