@@ -37,3 +37,14 @@
 29. Great Dane
 30. Bull's Eye
 
+41. Black death
+1. Foot and mouth
+1. Tuberculosis
+1. Swine flu
+1. Yellow fever
+1. Ebola
+1. Chicken pox
+1. Coronavirus
+1. Typhoid fever
+1. Rubela
+1. SARS
