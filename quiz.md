@@ -36,9 +36,9 @@ Questions about things to do without going out.
 
 16. We all feel like we need a bit more space, but which of these space objects can be seen with the naked eye: Mars, Europa, or the Sombrero Galaxy?
 1. W L Judson invented which useful crafting item in 1891: Zip, pencil, or sewing machine?
-1.
-1.
-1.
+1. Raku is a technique is which craft?
+1. Origami is the art of folding paper into sculptures. From which country does it originate?
+1. What craft for making clothes uses the same phrase as untying a boat from a dock?
 
 ## Round 5, Entertainment:
 
