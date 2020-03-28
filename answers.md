@@ -1,10 +1,10 @@
 
 # Answers
 
-1.
-2.
-3.
-4.
+1. 1928
+2. Josh Gad
+3. Snow White (14)
+4. Bao
 5.
 
 6. Alcatraz
