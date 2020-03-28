@@ -6,8 +6,8 @@ Disney launched their streaming service in the UK just in time for the lockdown.
 
 1. In what year was Steamboat Willie, the first Mickey Mouse cartoon, released: 1924, 1928, 1932, 1936?
 1. Which actor voices the character Olaf in Frozen?
-1. Who is the only Disney inspired by a real historical person?
-1. What is the name of the Pixar short featuring a chinese dunpling as a small boy?
+1. Who is the only Disney princess inspired by a real historical person?
+1. What is the name of the Pixar short featuring a chinese dumpling as a small boy?
 1. In Disney Pixar's Finding Nemo, there are three main shark characters; a Great White, a Hammerhead, and which other species of shark?
 
 ## Round 2, Isolation:
@@ -15,7 +15,7 @@ Disney launched their streaming service in the UK just in time for the lockdown.
 Things could be worse...
 
 6. What famous prison is on an island just off San Francisco?
-1. Tom Hanks was alone on a desert island for 4 years in Cast Away. What colour was the face of Wilson? For a bonus point, what was Wilson made from?
+1. Tom Hanks was alone on a desert island for four years in Cast Away. What colour was the face of Wilson? For a bonus point, what was Wilson made from?
 1. Anne Frank and her family hid for 761 days during WW2. In which city?
 1. How many years did South African politcal activist Nelson Mandela spend in prison?
 1. Matt Damon starred as Mark Watney, stranded on Mars in The Martian. What food did he grow in his own shit?
@@ -47,7 +47,7 @@ Don't get too bored.
 21. Which rapper *is* ready for this jelly?
 1. Which is the oldest Kardashian sister?
 1. Apart from the main six, which Friends character appeared in the most episodes?
-1. Nerf Herder wrote the theme song for which fantasy show; Charmed, Buffy the Vampire Slayer, or Xena: Warrior Princess?
+1. Nerf Herder wrote the theme song for which 90s fantasy show; Charmed, Buffy the Vampire Slayer, or Xena: Warrior Princess?
 1. Taylor Swift's Look What You Made Me Do is based on which 90s hit? Bonus point for the original artist.
 
 ## Round 6, Dogs:
@@ -58,7 +58,7 @@ Medically proven to be good for your mental health.
 1. How many teeth does a full grown adult dog have? 22, 32, 42, or 52?
 1. What breed of dog is Snoopy?
 1. What breed of dog is Scooby Doo?
-1. In Oliver Twist, what is the name of Bill Sykes dog?
+1. In Oliver Twist, what is the name of Bill Sykes' dog?
 
 ## Round 7, Animals:
 
