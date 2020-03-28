@@ -4,10 +4,10 @@
 
 Disney launched their streaming service in the UK just in time for the lockdown; each question is from a section on their homepage.
 
-1.
-1.
-1.
-1.
+1. In what year was Steamboat Willie, the first Mickey Mouse cartoon, released: 1924, 1928, 1932, 1936?
+1. Which actor voices the character Olaf in Frozen?
+1. Who is the youngest Disney princess? Bonus point for her age.
+1. What is the name of the Pixar short featuring a chinese dunpling as a small boy?
 1.
 
 ## Round 2, Isolation:
