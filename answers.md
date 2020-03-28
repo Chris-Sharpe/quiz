@@ -37,6 +37,12 @@
 29. Great Dane
 30. Bull's Eye
 
+31. No
+1. Giraffe
+1. None
+1. Triassic
+1. Tuna (47 mph, Ussain Bolt 27 mph)
+
 36. Canada
 1. Geneva
 1. Peru
