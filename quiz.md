@@ -84,7 +84,7 @@ Because it's effecting the whole world, I guess?
 
 Emoji diseases.
 
-40. ⚫ 💀
+41. ⚫ 💀
 1. 🦶👄
 1. 🍵 🐝
 1. 🐷🦅
