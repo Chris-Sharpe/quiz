@@ -1,6 +1,8 @@
+# Isolation Quiz
+
 ## Round 1, Disney+:
 
-Disney just launched their streaming service in the UK; each question is from a section on their homepage.
+Disney launched their streaming service in the UK just in time for the lockdown; each question is from a section on their homepage.
 
 1.
 1.
@@ -15,7 +17,7 @@ Things could be worse...
 6. What famous prison is on an island just off San Francisco?
 1. Tom Hanks was alone on a desert island for 4 years in Cast Away. What colour was the face of Wilson? For a bonus point, what was Wilson made from?
 1. Anne Frank and her family hid for 761 days during WW2. In which city?
-1. 
+1. How many years did South African politcal activist Nelson Mandela spend in prison?
 1.
 
 ## Round 3, Health and Fitness:
