@@ -42,6 +42,8 @@ Questions about things to do without going out.
 
 ## Round 5, Entertainment:
 
+Don't get too bored.
+
 21.
 1.
 1.
@@ -50,6 +52,8 @@ Questions about things to do without going out.
 
 ## Round 6, Dogs:
 
+Medically proven to be good for your mental health.
+
 26.
 1.
 1.
@@ -57,53 +61,16 @@ Questions about things to do without going out.
 1.
 
 
-Ideas
+## Ideas
 
-Space
-Retail shop question
-Dinosaurs Jurrasic or Cretaceous
-Mythology
-Capital of which country
-Covid 19 animal
-Most consumed manufactured drink is tea
-Longest coastline is Canada
-Nerf Herder wrote the charmed theme
-
-Space A minor planet is asteroid
-
-WHO is based in which city London Geneva or Cologne? Geneva
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+* Space
+* Retail shop question
+* Dinosaurs Jurrasic or Cretaceous
+* Mythology
+* Capital of which country
+* Covid 19 animal
+* Most consumed manufactured drink is tea
+* Longest coastline is Canada
+* Nerf Herder wrote the charmed theme
+* Space A minor planet is asteroid
+* WHO is based in which city London Geneva or Cologne? Geneva
