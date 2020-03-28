@@ -54,11 +54,11 @@ Don't get too bored.
 
 Medically proven to be good for your mental health.
 
-26.
-1.
-1.
-1.
-1.
+26. Which breed of dog famously has a blue tongue?
+1. How many teeth does a full grown adult dog have? 22, 32, 42, or 52?
+1. What breed of dog is Snoopy?
+1. What breed of dog is Scooby Doo?
+1. In Oliver Twist, what is the name of Bill Sykes dog?
 
 
 ## Ideas
