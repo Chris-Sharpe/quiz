@@ -37,6 +37,12 @@
 29. Great Dane
 30. Bull's Eye
 
+36. Canada
+1. Geneva
+1. Peru
+1. Norway
+1. Australia
+
 41. Black death
 1. Foot and mouth
 1. Tuberculosis
