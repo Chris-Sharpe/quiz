@@ -2,7 +2,7 @@
 
 ## Round 1, Disney+:
 
-Disney launched their streaming service in the UK just in time for the lockdown; each question is from a section on their homepage.
+Disney launched their streaming service in the UK just in time for the lockdown.
 
 1. In what year was Steamboat Willie, the first Mickey Mouse cartoon, released: 1924, 1928, 1932, 1936?
 1. Which actor voices the character Olaf in Frozen?
@@ -28,7 +28,7 @@ It's important to take care of your health right now. These questions will check
 1. Just Dance is a great way to get some exercise around the house, but which artist used the game in a music video? For a bonus point, name the song.
 1. What is the name of the exercise where you quickly go from standing, into a squat, into a plank, then repeat?
 1. Both of these foods are low-fat, but which has more protein: 100g of chicken breast or 100g of eggs (2 large eggs)?
-1. Which vegetable can be juiced to create a Vegan alternative to eggs for making meringue?
+1. Which vegetable can be juiced to create a Vegan alternative to egg whites for making meringue?
 
 ## Round 4, Crafts and Hobbies:
 
@@ -38,7 +38,7 @@ Questions about things to do without going out.
 1. W L Judson invented which useful crafting item in 1891: Zip, pencil, or sewing machine?
 1. Raku is a technique is which craft?
 1. Origami is the art of folding paper into sculptures. From which country does it originate?
-1. What craft for making clothes uses the same phrase as untying a boat from a dock?
+1. What craft often used for making baby clothes uses the same phrase as untying a boat from a dock? Bonus point for the phrase.
 
 ## Round 5, Entertainment:
 
@@ -74,11 +74,11 @@ Not dogs.
 
 Because it's effecting the whole world, I guess?
 
-36.
-1.
-1.
-1.
-1.
+36. Which country has the longest coastline?
+1. The World Health Organisation has its headquarters in which city; Cologne, Geneva, or London?
+1. Which country does Paddington Bear come from?
+1. Which Scandinavian country has the most northern point; Norway, Sweden, Denmark, or Iceland?
+1. Which is the most recent country that is *not* in Europe to join the Eurovision song contest?
 
 ## Round 9, Pictures:
 
