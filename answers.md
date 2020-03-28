@@ -21,9 +21,9 @@
 
 16. Mars
 17. Zip
-18.
-19.
-20.
+18. Pottery
+19. Japan
+20. Knitting (cast off)
 
 21.
 22.
