@@ -60,6 +60,31 @@ Medically proven to be good for your mental health.
 1. What breed of dog is Scooby Doo?
 1. In Oliver Twist, what is the name of Bill Sykes dog?
 
+## Round 7, Animals:
+
+Not dogs.
+
+31.
+1.
+1.
+1.
+1.
+
+## Round 8, Geography:
+
+Because it's effecting the whole world, I guess?
+
+36.
+1.
+1.
+1.
+1.
+
+## Round 9, Pictures:
+
+Emoji diseases.
+
+
 
 ## Ideas
 
