@@ -3,9 +3,9 @@
 
 1. 1928
 2. Josh Gad
-3. Snow White (14)
+3. Pocahontas
 4. Bao
-5.
+5. Mako
 
 6. Alcatraz
 7. Red, volleyball (NOT football)
