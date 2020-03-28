@@ -84,11 +84,11 @@ Because it's effecting the whole world, I guess?
 
 Emoji diseases.
 
-41. ⚫ 💀
-1. 🦶👄
-1. 🍵 🐝
-1. 🐷🦅
-1. 🟨🥵
+41. ⚫💀 ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/black-circle_26ab.png) ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/skull_1f480.png)
+1. 🦶👄 ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/foot_1f9b6.png) ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/mouth_1f444.png)
+1. 🍵 🐝 ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/hot-beverage_2615.png) ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/honeybee_1f41d.png)
+1. 🐷🦅 ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/pig-face_1f437.png) ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/eagle_1f985.png)
+1. 🟨🥵 ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/large-yellow-square_1f7e8.png) ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/hot-face_1f975.png)
 1. 💊 🎳 🅰️
 1. 🐓 🅿️ 🐃
 1. 🍺
