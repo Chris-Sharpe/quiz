@@ -97,22 +97,3 @@ Q   | &nbsp; | &nbsp; | &nbsp; | &nbsp;
 49 | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/flag-thailand_1f1f9-1f1ed.png) | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/steaming-bowl_1f35c.png) | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/id-button_1f194.png) | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/hot-face_1f975.png)
 50 | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/kangaroo_1f998.png) | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/bell_1f514.png) | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/a-button-blood-type_1f170.png)
 Bonus | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/flag-south-africa_1f1ff-1f1e6.png) | ![](https://emojipedia-us.s3.dualstack.us-west-1.amazonaws.com/thumbs/240/openmoji/242/peach_1f351.png)
-
-## Ideas
-
-* Space
-* Retail shop question
-* Dinosaurs Jurrasic or Cretaceous
-* Mythology
-* Capital of which country
-* Covid 19 animal
-* Most consumed manufactured drink is tea
-* Longest coastline is Canada
-* Nerf Herder wrote the Buffy theme
-* Space A minor planet is asteroid
-* WHO is based in which city London Geneva or Cologne? Geneva
-* snails can sleep for 3 years
-* cockroach has 12 heart chambers
-* bullfrogs never sleep
-* giraffes have highest blood pressure
-* sponges don't have hearts
