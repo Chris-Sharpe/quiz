@@ -18,9 +18,18 @@
 
 ### Round 3 - Games
 
-### Round 4 - Science
+11. How many rooms are there in Cluedo where the murder might have taken place?
+12. Which purple and orange dragon has a dragonfly friend named Sparx?
+13. In most variants of poker, how many cards make up a hand?
+14. Which board game involves players hitting a lever to make their safari animal eat as many plastic balls as possible?
+15. Which music-based game featured this as it's most popular song: https://www.youtube.com/watch?v=BR03WCEEvSs
 
-16. How are the Hawaiian islands formed?
+### Round 4 - Food and Drink
+16. Which F is a flat, savoury, Italian bread?
+17. The name literally translates as "whirlpool", which German desert is a thin sheet of rolled up pastry wrapped around a filling?
+18. Bubble and Squeak is made with meat, cabbage, and which other vegetable?
+19. Tempura, fish or vegetables deep fried in batter, is best associated with which country?
+20. Which country in the world produces the most tea?
 
 --------------
 
@@ -39,4 +48,14 @@
 9. John Wick: Chapter 2
 10. Mike Myers
 
-16. Volcanic eruptions
+11. 9
+12. Spyro
+13. 5
+14. Hungry Hungry Hippos
+15. Dance Dance Revolution (Dance Mat accepted)
+
+16. Focaccia
+17. Strudel
+18. Potato
+19. Japan
+20. China
