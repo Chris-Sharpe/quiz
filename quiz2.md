@@ -31,6 +31,13 @@
 19. Tempura, fish or vegetables deep fried in batter, is best associated with which country?
 20. Which country in the world produces the most tea?
 
+### Round 5 - Animals
+21. What is the name for a group of crows?
+22. What is the largest type of lizard?
+23. What is the largest type of penguin?
+24. Which type of bird has the largest wingspan?
+25. What breed of dog shares its name with Charles Darwin's boat?
+
 --------------
 
 ## Answers
@@ -40,7 +47,6 @@
 3. Justin Bieber
 4. Thriller
 5. LMFAO
-
 
 6. Toy Story
 7. Lilo & Stitch
@@ -59,3 +65,9 @@
 18. Potato
 19. Japan
 20. China
+
+21. A Murder
+22. Komodo Dragon
+23. Emperor Penguin
+24. Wandering Albatross (Albatross accepted)
+25. Beagle
