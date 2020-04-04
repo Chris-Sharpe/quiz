@@ -71,3 +71,9 @@
 23. Emperor Penguin
 24. Wandering Albatross (Albatross accepted)
 25. Beagle
+
+26. John Travolta
+27. Vin Diesel
+28. Shakira
+29. Simon Pegg
+30. Mario
