@@ -28,6 +28,9 @@
 25. Motorbike racer and multiple winner of the MotoGP Valentino Rossi is known by what nickname?
 26. Stephen Fry and Hugh Laurie met at the comedy club while attending which university?
 27. Name either one of the hosts on the tv quiz show Pointless?
+28. There are four ghosts that can kill you in Pac-Man. Three of them are coloured red, pink, and cyan (light blue). What colour is the fourth?
+29. How many states are in the United States of America?
+30. Which is rainier, Scotland or Wales?
 
 ------------------
 
@@ -60,3 +63,6 @@
 25. The Doctor
 26. Cambridge
 27. Alexander Armstrong or Richard Osmond
+28. Orange
+29. 50
+30. Scotland (about 9cm more rain per year on average)
