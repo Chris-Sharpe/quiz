@@ -1,6 +1,6 @@
 ## Quiz 3
+------------------
 
-### Round 1, General Knowledge
 1. In which 1995 film does farmer Arthur Hogget say "That'll do, pig. That'll do."?
 2. Queen Victoria belonged to which ruling house of the British monarchy; Hanover or Stuart?
 3. In mythology, Romulus and Remus were raised by which animal?
@@ -17,11 +17,22 @@
 14. To be called a Cornish Pasty, it must be made in Cornwall, contain meat, swede, onion, and which other vegetable?
 15. Psy, famous for the songs Gangnam Style, and Gentleman, is from which country?
 16. Which of these songs is NOT by Queen? I Want To Break Free, I Want To Ride My Bicycle, I Want To Know What Love Is, I Want It All.
+17. Which Finnish metal band won Eurovision in 2006?
+18. What is the first property on a standard British Monopoly board?
+19. Which electric car company is headed by billionaire mad-man Elon Musk?
+20. What breed of dog is the Queen famous for?
+21. Mount Fuji is a sacred mountain in which country?
+22. Horus, the ancient Egyptian god of the sky, was drawn as a man with the head of which animal?
+23. What type of boat are the Vikings most famous for?
+24. Nat King Cole sang these lyrics about which American road; "Get your kicks on route ..."?
+25. Motorbike racer and multiple winner of the MotoGP Valentino Rossi is known by what nickname?
+26. Stephen Fry and Hugh Laurie met at the comedy club while attending which university?
+27. Name either one of the hosts on the tv quiz show Pointless?
 
-### Round 2, 
-
+------------------
 
 ## Answers
+
 1. Babe
 2. Hanover
 3. Wolf
@@ -38,13 +49,14 @@
 14. Potato
 15. South Korea
 16. I Want To Know What Love Is (by Foreigner)
-
-
-
-
-
-
-## Notes
-
-Summer?
-
+17. Lordi
+18. Old Kent Road
+19. Tesla
+20. Corgi
+21. Japan
+22. Falcon or Hawk (accept other large birds)
+23. Longship
+24. Route 66
+25. The Doctor
+26. Cambridge
+27. Alexander Armstrong or Richard Osmond
