@@ -9,6 +9,11 @@
 8. Which country produces the most tea?
 9. Which type of bird has the largest wingspan?
 10. What is the first property on a standard British Monopoly board?
+11. Apart from the main six, which Friends character appeared in the most episodes?
+12. Simon Pegg and Nick Frost created the Cornetto Trilogy, Shaun Of The Dead, Hot Fuzz, and The World's End; which one was Bill Bailey in?
+13. Which purple and orange dragon has a dragonfly friend named Sparx?
+14. What is the national animal of China?
+15. There are four ghosts that can kill you in Pac-Man. Three of them are coloured red, pink, and cyan (light blue). What colour is the fourth?
 
 ---------
 
@@ -23,3 +28,8 @@
 8. China
 9. Wandering Albatross (Albatross accepted)
 10. Old Kent Road
+11. Gunther
+12. Hot Fuzz
+13. Spyro
+14. Giant panda
+15. Orange
