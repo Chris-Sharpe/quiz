@@ -13,6 +13,13 @@
 
 6. What is the most unusual feature of Howl's castle?
 7. Victor, Hugo, and Laverne, are examples of which architectural feature, that come to life in a 1996 Disney film?
+8. The entrance to Villain Con is hidden under what kind of building?
+9. In the 1997 animated film Hercules, the title character destroys a pottery shop by knocking over a series of what when playing with a discus?
+10. In Kung Fu Panda, the roof of the Jade Palace has how many levels?
+
+### Round 3, Music
+
+11. Elton John famously wrote the music for the original songs in The Lion King, but who wrote the lyrics?
 
 -------------
 
@@ -26,3 +33,7 @@
 
 6. It moves
 7. Gargoyles
+8. Shed/shack (bait shop)
+9. Columns
+10. 3
+
