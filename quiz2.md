@@ -38,6 +38,9 @@
 24. Which type of bird has the largest wingspan?
 25. What breed of dog shares its name with Charles Darwin's boat?
 
+### Round 6 - Pictures
+![](https://raw.githubusercontent.com/Chris-Sharpe/quiz/master/picround.jpg)
+
 --------------
 
 ## Answers
