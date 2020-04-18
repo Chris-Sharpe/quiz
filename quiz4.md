@@ -41,6 +41,14 @@
 24. In Norse mythology, Loki is not actually an Agardian god. What is he?
 25. In 2012, which historical English king was found under the car park of Leicester Social Services?
 
+### Round 6, Science
+
+26. Which famous scientist was played by David Bowie in a 2006 film?
+27. What was the nationality of the first person in space?
+28. "I was once a tree house, I lived in a cake" are lines from a popular song about which animal?
+29. A clownfish lives in what kind of home?
+30. During WWII, the Manhattan Project was trying to build what?
+
 -------------
 
 ## Answers
@@ -74,3 +82,9 @@
 23. Titans
 24. Ice giant (frost giant)
 25. Richard III
+
+26. Nikola Tesla (The Prestige)
+27. Soviet (or Russian, Yuri Gagarin)
+28. Llama
+29. Anemone
+30. Nuclear Bomb
