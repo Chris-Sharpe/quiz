@@ -33,10 +33,13 @@
 19. What is Wallace's favourite cheese?
 20. What is the offical state vegetable of Idaho?
 
-### Round 5, History
+### Round 5, History and Mythology
 
 21. Which English monarch is seen in the film Pocahontas?
 22. In the 1997 film Hercules we see Aphrodite kissing Philoctetes, but in Greek mythology who is she married to?
+23. Which gods did Zeus defeat to take power?
+24. In Norse mythology, Loki is not actually an Agardian god. What is he?
+25. In 2012, which historical English king was found under the car park of Leicester Social Services?
 
 -------------
 
@@ -68,3 +71,6 @@
 
 21. James (James I)
 22. Hephaestus
+23. Titans
+24. Ice giant (frost giant)
+25. Richard III
