@@ -25,6 +25,19 @@
 14. Which future famous singer appears in the music video for Katy Perry's I Kissed A Girl?
 15. Who performed the main song for the 2000 film Charlie's Angels?
 
+### Round 4, Food
+
+16. According to the Women's Institute, what jam should be used in a Victoria Sandwich?
+17. Finish this quote from the film Calendar Girls: "We're going to need considerably bigger"?
+18. KFC has become a popular Christmas dinner in which country?
+19. What is Wallace's favourite cheese?
+20. What is the offical state vegetable of Idaho?
+
+### Round 5, History
+
+21. Which English monarch is seen in the film Pocahontas?
+22. In the 1997 film Hercules we see Aphrodite kissing Philoctetes, but in Greek mythology who is she married to?
+
 -------------
 
 ## Answers
@@ -45,5 +58,13 @@
 12. Gotye (featuring Kimbra)
 13. Wyclef Jean
 14. Kesha
-15 Destiny's Child
+15. Destiny's Child
 
+16. Raspberry
+17. Buns
+18. Japan
+19. Wensleydale
+20. Potato
+
+21. James (James I)
+22. Hephaestus
