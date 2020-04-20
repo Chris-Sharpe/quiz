@@ -1,4 +1,4 @@
-# Isolation Quiz 1
+# Quiz 1
 
 ## Round 1, Disney+:
 
