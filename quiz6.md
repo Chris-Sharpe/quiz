@@ -6,6 +6,7 @@
 4. Which TV series is based in the town of Storybrooke, and has plotlines based on fairytales?
 5. The patella is a bone in which part of the body?
 6. Which vegetable can be cooked in a style known as Hasselback?
+7. In Scrabble, which letter has the highest score?
 
 # Answers
 
@@ -15,3 +16,4 @@
 4. Once Upon A Time
 5. Knee (leg acceptable)
 6. Potato
+7. Q or Z (both score 10)
