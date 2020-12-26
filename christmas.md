@@ -4,7 +4,7 @@
 | --- | --- |
 | 1. Which of Santa’s reindeers comes first alphabetically? | **Blitzen** |
 | 2. Donald Trump makes a cameo appearance in which Christmas Film? | **Home Alone 2** |
-| 3. In Frozen 2, Olaf tells Anna that turtles can do what? | **Breathe through their butt (this is actually true)** |
+| 3. In Frozen 2, Olaf tells Anna that turtles can do what? | **Breathe through their butt** (this is actually true) |
 | 4. In "The 12 Days Of Christmas", how many lords are a-leaping? | **10** |
 | 5. In Lapland, the average height of a male is 5 feet 5 inches, true or false? | **False** |
 | 6. Before wrapping paper was introduced in the early 1900s, it was common in Britain to hide presents in kitchen pots and pans, true or false? | **False** |
@@ -20,7 +20,7 @@
 | 16. How many different types of chocolate are there in Quality Street? | **12** |
 | 17. According to science, would Santa's reindeers be male or female? | **Female**: male reindeers lose their antlers in winter, but females don't. |
 | 18. Which Christmas song was the first ever song to be broadcast in space? | **Jingle Bells** |
-| 19. What were the names of the three spirits who visited Ebeneezer Scrooge in A Christmas Carol? | **The Ghosts of Christmas Past, Present, and Yet To Come (allow Future)** |
+| 19. What were the names of the three spirits who visited Ebeneezer Scrooge in A Christmas Carol? | **The Ghosts of Christmas Past, Present, and Yet To Come** (allow Future) |
 | 20. Write down as many names as you can for the man who wears the red suit? | Point to whoever has the most correct names. |
 | 21. Mince pies were once coffin-shaped, rather than round as we know them today, true or false? | **True** |
 | 22. In the Nativity, what did Joseph do for a living? | **Carpenter** |
