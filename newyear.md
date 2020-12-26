@@ -4,6 +4,7 @@
 Astrid zodiac pig monkey or horze? Pig
 Mayan apocalypse year? 2012 (Dec 21st)
 jewish new year Rosh Hashanah month in 2020? September
+Months named after Roman rulers? July, August.
 
 ## Round 2 - TV Competitions
 sword tang? Back of blade into handle
