@@ -24,7 +24,15 @@
 21. Mince pies were once coffin-shaped, rather than round as we know them today, true or false?
 22. In the Nativity, what did Joseph do for a living?
 23. What country is famous for having KFC as their Christmas dinner tradition every year?
+24. Which town did Dominic Cummings drive to to "test his eyesight" after being infected with Coronavirus?
+25. What is the name of the Netflix documentary series about Joe Exotic?
+26. What is the most recent country to join the Eurovision Song Contest?
+27. Which country did modern-day Christmas trees originate in?
+28. What is the Jewish festival Hannukkah also known as?
+29. Which land animal has the highest blood pressure?
+30. In Cluedo, how many rooms are there where the murder might have taken place?
 
+Tie Breaker. Which ocean is the Australian territory Christmas Island in?
 
 ## Answers
 1. Blitzen
@@ -50,3 +58,12 @@
 21. True
 22. Carpenter
 23. Japan
+24. Barnard Castle (yes, that is the name of the town)
+25. Tiger King
+26. Australia
+27. Germany
+28. The Festival Of Lights?
+29. Giraffe
+30. 9
+
+Tie Breaker: Indian Ocean
