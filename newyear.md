@@ -1,10 +1,10 @@
 # End of 2020 Quiz!
 
 ## Round 1 - Calendars/Years
-1. Astrid zodiac pig monkey or horze? Pig
-1. Mayan apocalypse year? 2012 (Dec 21st)
-1. Jewish new year Rosh Hashanah month in 2020? September
-1. Months named after Roman rulers? July, August.
+1. Astrid was born in the Chinese Zodiac year of which animal, pig, monkey, or horse? - **Pig**
+1. The Mayan long-count calendar ran out in which year, leading some people to claim they were predicting an apocalypse? - **2012** (Dec 21st)
+1. The Jewish new year celebration Rosh Hashanah occured in which month in 2020? - **September**
+1. We have two months named after Roman rulers; name either one. - **July, August**
 1. Considerably bigger buns
 
 ## Round 2 - TV Competitions
