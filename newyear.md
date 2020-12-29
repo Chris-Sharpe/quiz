@@ -5,7 +5,7 @@
 1. Mayan apocalypse year? 2012 (Dec 21st)
 1. Jewish new year Rosh Hashanah month in 2020? September
 1. Months named after Roman rulers? July, August.
-1. 
+1. Considerably bigger buns
 
 ## Round 2 - TV Competitions
 6. sword tang? Back of blade into handle
