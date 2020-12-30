@@ -11,7 +11,7 @@
 6. The Great Pottery Throw Dow: Raku is a pottery technique originating in which country? - **Japan**
 1. The Great British Bake Off: "Blind baking" is a technique used to avoid dreaded failure in a pie or tart? - **Soggy bottom**
 1. Forged In Fire: What part of a sword is the "tang"? - **Back of the blade that goes into the handle**
-1. sewing bee?
-1. Kirsty oragami?
+1. The Great British Sewing Bee: What is the name of the type of stitch that wraps over the edge of the cloth? - **Overlock**
+1. Kirstie's Handmade Christmas: What is "kirigami"? - **Japanese paper cutting**
 
 ## Round 3
