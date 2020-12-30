@@ -13,5 +13,8 @@
 1. Forged In Fire: What part of a sword is the "tang"? - **Back of the blade that goes into the handle**
 1. The Great British Sewing Bee: What is the name of the type of stitch that wraps over the edge of the cloth? - **Overlock**
 1. Kirstie's Handmade Christmas: What is "kirigami"? - **Japanese paper cutting**
+1. RuPaul's Drag Race: Giving someone a bitchy, backhanded insult is known as "throwing what"? - **Shade**
 
-## Round 3
+## Round 3 - Films
+11. In the final Harry Potter films, the group search form three magical items to help them defeat Voldemort; a wand, a cloak, and a stone. Altogether, what are these items known as? - **The Deathly Hallows**
+1. Keanu Reeves plays an assassin who tries to retire, but gets dragged back in for revenge on the man who killed his dog. What is the character's name? - **John Wick**
