@@ -1,6 +1,6 @@
 # End of 2020 Quiz!
 
-## Round 1 - Calendars/Years
+## Round 1 - Calendars
 1. Astrid was born in the Chinese Zodiac year of which animal, pig, monkey, or horse? - **Pig**
 1. The Mayan long-count calendar ran out in which year, leading some people to claim they were predicting an apocalypse? - **2012** (Dec 21st)
 1. The Jewish new year celebration Rosh Hashanah occured in which month in 2020? - **September**
