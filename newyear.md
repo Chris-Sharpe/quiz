@@ -33,4 +33,4 @@
 1. How many studio albums did Taylor Swift release in 2020? - **2**
 1. On average, which is bigger, jaguar or cheetah? - **Jaguar**
 1. In Greek mythology, name the three-headed dog that guards the underworld? - **Cerberus**
-1. 
+1. From 2003 to 2011, Arnold Schwarzenegger was govorner of which US state? - **California**
