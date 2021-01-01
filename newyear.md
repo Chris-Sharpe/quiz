@@ -29,4 +29,8 @@
 1. The Mexican dip guacamole is mostly made from which fruit? - **Avocado**
 
 ## Round 5 - General Knowledge
-21. 
+21. Honey bee queens can lay how many eggs in a day; 200, 2000, or 20,000? - **2000**
+1. How many studio albums did Taylor Swift release in 2020? - **2**
+1. On average, which is bigger, jaguar or cheetah? - **Jaguar**
+1. In Greek mythology, name the three-headed dog that guards the underworld? - **Cerberus**
+1. 
