@@ -12,8 +12,7 @@
 1. The Great British Bake Off: "Blind baking" is a technique used to avoid what dreaded failure in a pie or tart? - **Soggy bottom**
 1. Forged In Fire: What part of a sword is the "tang"? - **Back of the blade that goes into the handle**
 1. The Great British Sewing Bee: What is the name of the type of stitch that wraps over the edge of the cloth? - **Overlock**
-1. Kirstie's Handmade Christmas: What is "kirigami"? - **Japanese paper cutting**
-1. RuPaul's Drag Race: Giving someone a bitchy, backhanded insult is known as "throwing what"? - **Shade**
+1. RuPaul's Drag Race: Giving someone a mean, backhanded insult is known as "throwing what"? - **Shade**
 
 ## Round 3 - Films
 11. In the final Harry Potter films, the group search for three magical items to help them defeat Voldemort; a wand, a cloak, and a stone. Altogether, what are these items known as? - **The Deathly Hallows**
@@ -22,4 +21,12 @@
 1. Actor Mike Myers has played which character more often, in major films with the character in the title: Austin Powers or Shrek? - **Shrek**
 1. Vin Diesel plays which dangerous criminal from the planet Furya? - **Richard B. Riddick**
 
-## Round 4 - 
+## Round 4 - Food
+15. What biscuit traditionally has a pattern of ferns on the outside? - **Custard cream**
+1. "Bara Brith" is a fruit loaf originating from which country? - **Wales**
+1. What are the main two toppings on a Hawaiian pizza? - **Ham and pineapple**
+1. In Australia, what is a "stubby"? - Small bottle of **beer**
+1. The Mexican dip guacamole is mostly made from which fruit? - **Avocado**
+
+## Round 5 - General Knowledge
+20. 
