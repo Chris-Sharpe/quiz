@@ -20,4 +20,6 @@
 1. Keanu Reeves plays an assassin who tries to retire, but gets dragged back in for revenge on the man who killed his dog. What is the character's name? - **John Wick**
 1. Who plays the Hawaiian demigod Maui in the 2016 animated Disnay film Moana? - **Dwayne Johnson/The Rock**
 1. Actor Mike Myers has played which character more often, in major films with the character in the title: Austin Powers or Shrek? - **Shrek**
-1.
+1. Vin Diesel plays which dangerous criminal from the planet Furya? - **Richard B. Riddick**
+
+## Round 4 - 
